@@ -18,6 +18,5 @@ If you’ve never contributed to open source before, this is the perfect time to
 <br />
 
 # tempat-kontributor
-ojol punya
-
+OBY DAB RAUDIA PUNYA
 \
